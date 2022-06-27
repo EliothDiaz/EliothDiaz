@@ -1,0 +1,4 @@
+- 👋 Hi, what's up bro? 
+- I’m @EliothDiaz
+- 👀 I’m interested in tecnology
+- 🌱 I’m currently learning technology reports
